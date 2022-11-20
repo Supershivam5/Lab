@@ -1,6 +1,5 @@
-# Lab
-
-
-practicals codes
-
-chapppo mcbc !!!!!!!!!!
+# Lab Hackes 😎😎😎😎
+practicals codes 
+ copy kro 
+ u whorefucker & wife cuckholders
+ !!!!!!!!!!
